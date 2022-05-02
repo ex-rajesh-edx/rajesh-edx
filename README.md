@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rajesh Royal
-- 👀 I’m interested in almost everything
+- 👀 I’m interested .....
 - 🌱 I’m currently learning ??????????
 - 💞️ I’m looking to collaborate on ....
 - 📫 How to reach me social media, online platforms
